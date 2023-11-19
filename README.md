@@ -1,0 +1,1 @@
+# aruneshtrivedi-Linkdin-QRCode-Color
